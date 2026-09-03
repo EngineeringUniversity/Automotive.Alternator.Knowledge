@@ -1,4 +1,5 @@
 # Index:
+- [1502 Generating From Wind - The Alternators Hidden Secrets](https://youtu.be/hweKDpfeT6o)
 - [
 
 # Search:
